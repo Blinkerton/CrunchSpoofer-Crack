@@ -9,6 +9,5 @@ Pasted HWID Spoofer "Made" by people who just want fast and easy money. little t
 In conclusion Crunch Services are scamming your money and using free software (which they are selling) as a spoofer
 there discord: https://discord.gg/HzWTMMcRm4
 
-Proof here:
 ![image](https://user-images.githubusercontent.com/123302398/213914537-3ed27036-00d6-48e2-8fcc-c149b502cbd4.png)
 ![image](https://user-images.githubusercontent.com/123302398/213914924-e8628ae1-e647-4059-9b0b-b7bfba4aae3b.png)
